@@ -1,2 +1,2 @@
-# scvvip
+# AUTOSCRIPT PREMIUM🤮
 Test
